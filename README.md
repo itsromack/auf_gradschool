@@ -1,4 +1,4 @@
-auf_gradschool
+Angeles University Foundation Graduate School - Documents
 ==============
 
-AUF Graduate School documents
+Assignments, Presentation, Projects, etc.
